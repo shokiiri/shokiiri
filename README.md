@@ -8,3 +8,7 @@
 
 ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
 
+
+
+haikyu & jjk are my fav animes
+
