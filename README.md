@@ -13,4 +13,4 @@
 haikyu & jjk are my fav animes
 
 
-I am @dashiiix
+IM NOT EVIL @dashiiix
