@@ -12,3 +12,5 @@
 
 haikyu & jjk are my fav animes
 
+
+I am @dashiix
